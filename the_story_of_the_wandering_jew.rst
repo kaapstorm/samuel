@@ -643,8 +643,8 @@ and cooked and cleaned for them in exchange for accommodation. They were
 Greek, and Samuel and Isaac introduced them to traditional Jewish
 cooking, and observed Jewish holidays and festivals with them. They
 really enjoyed that. And living in a big city, and running the kitchen
-themselves, allowed Samuel and Isaac to keep a kosher kitchen. They
-found that deeply gratifying, and peaceful. John and Marcia were
+themselves, allowed Samuel and Isaac to keep a kosher kitchen easily.
+They found that deeply gratifying, and peaceful. John and Marcia were
 Christians, but very Hellenistic in their religion. But the rigour of
 Jewish ritual gave them a sense of order, even purpose perhaps, that
 seemed to rejuvenate them.
@@ -681,8 +681,9 @@ will return at the end of the world. Before I am dead, he will come with
 his kingdom. He said so. And I trust him."
 
 Samuel got a sinking feeling in his stomach. He had said too much. He
-wondered whether John or Marcia would pick it up. He smiled his I-trust-
-him smile, and hoped it would cover up his before-I-am-dead slip.
+wondered whether John or Marcia would pick it up. He smiled his
+I-trust-him smile, and hoped it would cover up his before-I-am-dead
+slip.
 
 "What?" said John. "Before you are dead?"
 
@@ -754,7 +755,7 @@ that did not require the kind of discretion that would prevent the
 assistance of a man.
 
 John and Marica had never had children, and Marcia meant everything to
-John. Despite his friendship with Samuel and Isaac, after Marvia's death
+John. Despite his friendship with Samuel and Isaac, after Marcia's death
 John pined to be with her gain. He died one cold winter night two years
 later.
 
