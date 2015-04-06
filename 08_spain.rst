@@ -9,18 +9,18 @@ encountered the church of Rome. It wasn't fundamentally different from
 Christianity under the caliphate, except for the fact that being
 Christian meant being not Jewish; not Jewish at all.
 
-Samuel and Isaac hadn't experienced anything like this since the Roman-
-Jewish Wars, over a 1000 years earlier. Islam had respected their
-practices, and although there was always a limit to their professional
-progress, they were subject to a similar limit as a result their
-immortality; they would always need to move and take on new identities,
-eventually, and that made it difficult to accummulate wealth. Also,
-wealth attracted attention, and attention was exactly what they needed
-to avoid.
+Samuel and Isaac hadn't experienced anything like this since the
+Roman-Jewish Wars, over a thousand years earlier. Islam had respected
+their practices, and although there was always a limit to their
+professional progress because they weren't Muslim, they were subject to
+a similar limit as a result their immortality; they would always need to
+move and take on new identities, eventually, and that made it difficult
+to accummulate wealth. Also, wealth attracted attention, and attention
+was exactly what they needed to avoid.
 
 They kept their heads down. They lived together in a moderate house.
 They worshipped in the Seville Cathedral. They had Christian friends.
-They ate meals with them, and one of their friends, Juan Marco was
+They ate meals with them, and one of their friends, Juan Marco, was
 Samuel's boss in a bakery in Seville. So when Jews were forced to
 convert, or be killed, nobody accused or even suspected Samuel and Isaac
 of being Jewish.
@@ -36,9 +36,9 @@ It was also very suspicious that two men of their age lived alone
 together. They were accused of sodomy, and tortured for a confession.
 Their fingernails were ripped out. At one point Isaac said he may have
 had a whistful feeling towards Samuel, but that was many years ago, on a
-particularly lonely and drunken evening, and nothing had ever happened.
-But it was enough, and instead of pursuading his torturers that he was
-not gay, Isaac was found guilty of sodomy.
+particularly lonely and drunken evening, and nothing had ever happened,
+because they were just old friends. But his anecdote didn't make things
+better. Instead Isaac was found guilty of sodomy.
 
 At one point, while Samuel's feet were being burned, he exclaimed that
 he was more of a Christian than they could ever be. On further enquiry,
@@ -69,8 +69,8 @@ the digging and their fingers were bleeding again. They made their way
 to the Guadalquivir River, and lay in it, allowing themselves to drift
 out of the city.
 
-When they climbed out, they begged for clothes, and food, and headed
-northeast. Northeast out of Spain, through France, to the Holy Roman
-Empire.
+When they climbed out the river, they begged for clothes, and food, and
+headed northeast. Northeast out of Spain, through France, to the Holy
+Roman Empire.
 
 
