@@ -120,7 +120,7 @@ then he just said it, "Will you come with me?"
 "What?"
 
 "Will you come to Hebron, or wherever we decide to go. We don't have to
-go to Hebron. Will you come with me? We are the same. You will ahve this
+go to Hebron. Will you come with me? We are the same. You will have this
 problem too one day. Maybe sooner than you think. You will also have to
 leave. Come with me. It will be better if we stick together."
 
