@@ -8,23 +8,29 @@ explains it to his students.
     Jesus is not just a way of reading Scripture. He is also a
     reflection of ourselves.
 
-*Was there a real man named Jesus?* If you know Samuel very well, and he
-trusts you deeply, he will tell you that he thinks that much was real.
+    Seeing the Son of Man coming with his kingdom is not an event. His
+    kingdom is not a place. His kingdom is a way of living. Jesus is a
+    way of interpreting the Torah; the most compassionate way. And so
+    seeing the Son of Man coming with his kingdom means living, every
+    day and all the time, the most compassionate interpretation of the
+    Torah.
 
-*Did he rise up into the sky?* Samuel gets a little uncertain at this
-point. Something happened. What it was isn't exactly clear.
+    This can be done, indeed must be done, for all Scripture, and even
+    non-religious texts. The first ten amendments of the United States
+    Constitution and the Universal Declaration of Human Rights both
+    demand compassionate interpretation, and the reasons they were
+    written should be carved into the hearts of all of us.
 
-*How come Samuel is so old?* He doesn't know. But he is the subject of a
-study at his university, and he is going for tests, and maybe someone
-will come up with a plausible hypothesis. And maybe whatever we learn
-can be used to help people, cure disease and alleviate suffering.
+    This is not Christianity, or Judaism, or Islam. It is not religion.
+    It is just compassion. Compassion that becomes the thread from which
+    the fabric of your life is woven. Compassion that you live in, and
+    that lives through you.
 
-*Where is Isaac?* He is currently living a quiet life in an undisclosed
-village somewhere in the English midlands.
-
-*What happened to the woman who Samuel and Isaac helped out of her tomb
-all that time ago?* Samuel has thought about her more times than he will
-probably admit. He doesn't know. When the results of his study are
-published, perhaps she will look him up.
+    This is what it means to live in the kingdom of God. And just like
+    the way Jesus appeared to his disciples after his death, it turned
+    out that he was there all along, and we just hadn't noticed him, but
+    when we did it changed everything. So the kingdom of God has always
+    been here. It took me so long to notice it. But now that I have, it
+    changes everything.
 
 

@@ -1358,6 +1358,38 @@ explains it to his students.
     Jesus is not just a way of reading Scripture. He is also a
     reflection of ourselves.
 
+    Seeing the Son of Man coming with his kingdom is not an event. His
+    kingdom is not a place. His kingdom is a way of living. Jesus is a
+    way of interpreting the Torah; the most compassionate way. And so
+    seeing the Son of Man coming with his kingdom means living, every
+    day and all the time, the most compassionate interpretation of the
+    Torah.
+
+    This can be done, indeed must be done, for all Scripture, and even
+    non-religious texts. The first ten amendments of the United States
+    Constitution and the Universal Declaration of Human Rights both
+    demand compassionate interpretation, and the reasons they were
+    written should be carved into the hearts of all of us.
+
+    This is not Christianity, or Judaism, or Islam. It is not religion.
+    It is just compassion. Compassion that becomes the thread from which
+    the fabric of your life is woven. Compassion that you live in, and
+    that lives through you.
+
+    This is what it means to live in the kingdom of God. And just like
+    the way Jesus appeared to his disciples after his death, it turned
+    out that he was there all along, and we just hadn't noticed him, but
+    when we did it changed everything. So the kingdom of God has always
+    been here. It took me so long to notice it. But now that I have, it
+    changes everything.
+
+
+Appendix
+--------
+
+Miracle
+^^^^^^^
+
 *Was there a real man named Jesus?* If you know Samuel very well, and he
 trusts you deeply, he will tell you that he thinks that much was real.
 
@@ -1377,13 +1409,6 @@ all that time ago?* Samuel has thought about her more times than he will
 probably admit. He doesn't know. When the results of his study are
 published, perhaps she will look him up.
 
-
-Appendix
---------
-
-Miracle
-^^^^^^^
-
 *Oh, come on! The guy was dead for about eight years! His brain had
 completely decayed! It was quite obviously a miracle. A 100%
 supernatural God-proving miracle. Admit it.* OK. OK. Let's be completely
@@ -1400,7 +1425,16 @@ means for his life. Maybe it means something for your life too.
 
 Can you think of another book that uses the same narrative devices? What
 if some of the things you thought were literal, aren't? Would the
-messages in that other book be different?
+messages in that other book be any different?
+
+
+Seriously? More Questions?
+^^^^^^^^^^^^^^^^^^^^^^^^^^
+
+*You took Matthew 16 out of chronological order.* Did I? Gosh, look at
+that. [#]_
+
+*What translation did you use?* The International Children's Bible.
 
 
 Dramatis Personae
@@ -1439,13 +1473,30 @@ Cephas
 David
     Cousin of Samuel
 
+Mariam
+    Wife of David
+
 John and Marcia
     Friends of Samuel and Isaac
 
 Julia
     Second wife of Samuel
 
+Juan Marco
+    A baker
+
 Douglas Adams
     Douglas Adams
 
 
+.. rubric:: Footnotes
+
+.. [#] You know the Gospel of John does the same with the story of Jesus
+       driving the money changers out of the Temple. John has it
+       happening at the start of his ministry. Mark, Matthew and Luke
+       have it happening at the end. Some scholars say that Jesus must
+       have done it twice, but that seems like a bit of a stretch. Why
+       would Mark, Matthew and Luke all forget to mention the first
+       time, and John not bother to mention the second time? So if it's
+       OK for the author of the Gospel of John to play with chronology,
+       it should be OK for my little story.
