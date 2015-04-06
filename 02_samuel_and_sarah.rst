@@ -6,7 +6,7 @@ back.
 
 He popped into the bakery. Joseph had taken over the business, and
 although he didn't do things the same way as Samuel, the business was
-going fine. Well, even, Samuel had to admit.
+going fine. Even well, Samuel had to admit.
 
 Samuel became an instance celebrity. A lot of people came into the
 bakery to see him. A lot of people; there were queues outside every

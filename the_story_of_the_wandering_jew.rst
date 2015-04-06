@@ -212,7 +212,7 @@ That's not you. You … aren't my Samuel. My Samuel was fat."
 
 "Sarah?" This was not going the right way.
 
-"Mom," Rachel tried to help. Rebecca was her too now, and Isaac and
+"Mom," Rachel tried to help. Rebecca was here too now, and Isaac and
 Joseph. "Mom, this is Dad. It's a miracle. Look, mister Abramson from
 down the road is here too."
 
@@ -241,7 +241,7 @@ back.
 
 He popped into the bakery. Joseph had taken over the business, and
 although he didn't do things the same way as Samuel, the business was
-going fine. Well, even, Samuel had to admit.
+going fine. Even well, Samuel had to admit.
 
 Samuel became an instance celebrity. A lot of people came into the
 bakery to see him. A lot of people; there were queues outside every

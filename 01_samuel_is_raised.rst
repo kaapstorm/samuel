@@ -192,7 +192,7 @@ That's not you. You … aren't my Samuel. My Samuel was fat."
 
 "Sarah?" This was not going the right way.
 
-"Mom," Rachel tried to help. Rebecca was her too now, and Isaac and
+"Mom," Rachel tried to help. Rebecca was here too now, and Isaac and
 Joseph. "Mom, this is Dad. It's a miracle. Look, mister Abramson from
 down the road is here too."
 
