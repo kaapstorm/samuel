@@ -87,11 +87,11 @@ happens to us, and in part how we understand what happens to us.
 
 "Did Jesus say,
 
-    "I tell you the truth. There are some people standing here who,
-    before they die, will see the Son of Man coming with his kingdom."
+    'I tell you the truth. There are some people standing here who,
+    before they die, will see the Son of Man coming with his kingdom.'
 
-because he intended to keep them alive for 2000 years, at least, or
-because he knew they would live for 2000 years, at least?
+because he intended to keep those people alive for 2000 years, at least,
+or because he knew they would live for 2000 years, at least?
 
 "Maybe God is not punishing you, Samuel. Maybe shit just happens, and
 something fucking weird happened that Passover weekend, and your body
@@ -106,14 +106,14 @@ of all your memories, if not in your head.
 "I digress, though. And this next part is important:
 
 "The reason we have aeroplanes and CD players and Apple Macs today, and
-we didn't when you were born, is because Averroes was wrong. Reason is
-not as good as revelation. And Aquinas was wrong too. Reason is much,
-much better than revelation. Revelation is certainly a thing. But
-everyone has different revelations. Conservation of energy works the
-same for everyone. Gravity works the same for everyone. But the kingdom
-of God is slightly different for everyone. And the parts of the kingdon
-of God that seem to be the same for everyone don't reveal what is true
-about the kingdom of God; they reveal what is true about people.
+we didn't when you were born, is because Averroes was wrong. And Aquinas
+was wrong too. Reason is not as good as revelation. Reason is much, much
+better than revelation. Revelation is certainly a thing. But everyone
+has different revelations. Conservation of energy works the same for
+everyone. Gravity works the same for everyone. But the kingdom of God is
+slightly different for everyone. And the parts of the kingdon of God
+that seem to be the same for everyone don't reveal what is true about
+the kingdom of God; they reveal what is true about people.
 
 "Revelation does not tell you about an external reality. Revelation only
 ever tells you about yourself. You think you are looking at something
@@ -126,8 +126,8 @@ guy, and he really did ascend into heaven."
 
 "Well, I did at the time. I don't anymore."
 
-"Do you think the fact that you thought heaven is in the sky affected
-your seeing him rise up into the sky?"
+"Do you think he rose up into the sky *because* you thought heaven is in
+the sky?"
 
 "Maybe," thought Samuel. "I mean, when you put it like that, where would
 he be now? In the vaccuum of space? Did he float up until he could just
@@ -151,13 +151,13 @@ ideas.
 "So where does all this leave us? The only truth that revelation reveals
 is truth about yourself. Evidence is what determines what is really
 true. God is not blessing you, rewarding you or punishing you. You are
-who you are. You get to choose how you want to work with that.
+who you are. You get to choose how you want to work with who you are.
 
 "I can't make that choice for you. But I'd like to make some
 suggestions. Immortality offers you the opportunity to get really,
-really good at stuff. You say you bake really well. That's great. Maybe
-you should try to be a teacher next. That is an invaluable skill. And
-you have a lot you can teach."
+really good at stuff. You say you bake really well. That's great. I
+think you should try to be a teacher next. That is an invaluable skill.
+And you have a lot you can teach."
 
 
 .. rubric:: Footnotes

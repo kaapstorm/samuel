@@ -2,8 +2,8 @@ Jesus
 -----
 
 Samuel thought about what Douglas had said. He thought about the
-questions that the German priest had asked about Jesus. Today, this is
-how Samuel explains it to his students.
+questions that the German priest had asked. Today, this is how Samuel
+explains it to his students.
 
     Jesus is not just a way of reading Scripture. He is also a
     reflection of ourselves.
@@ -14,7 +14,7 @@ trusts you deeply, he will tell you that he thinks that much was real.
 *Did he rise up into the sky?* Samuel gets a little uncertain at this
 point. Something happened. What it was isn't exactly clear.
 
-*How come is Samuel so old?* He doesn't know. But he is the subject of a
+*How come Samuel is so old?* He doesn't know. But he is the subject of a
 study at his university, and he is going for tests, and maybe someone
 will come up with a plausible hypothesis. And maybe whatever we learn
 can be used to help people, cure disease and alleviate suffering.
