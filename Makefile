@@ -175,3 +175,6 @@ pseudoxml:
 	$(SPHINXBUILD) -b pseudoxml $(ALLSPHINXOPTS) $(BUILDDIR)/pseudoxml
 	@echo
 	@echo "Build finished. The pseudo-XML files are in $(BUILDDIR)/pseudoxml."
+
+singlerst:
+	cat `ls -1 ??_*.rst | sort` | egrep -v '^\.\. toctree::|^   :maxdepth:|^   [[:digit:]]{2}_' > the_story_of_the_wandering_jew.rst

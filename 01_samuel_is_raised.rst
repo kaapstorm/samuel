@@ -1,5 +1,5 @@
-Samuel was raised
------------------
+Samuel is raised
+----------------
 
 Samuel bar Jacob was a baker, and rather successful at it too. He lived
 in Jerusalem. His fare was delicious. He was pious, he was well known

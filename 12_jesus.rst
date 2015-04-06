@@ -26,20 +26,3 @@ village somewhere in the English midlands.
 all that time ago?* Samuel has thought about her more times than he will
 probably admit. He doesn't know. When the results of his study are
 published, perhaps she will look him up.
-
-*Oh, come on! The guy was dead for about eight years! His brain had
-completely decayed! It was quite obviously a miracle. A 100%
-supernatural goddamn miracle. Admit it.* OK. OK. Let's be completely
-open and honest about all this, then. I wasn't going to admit it, but
-you've got me in a corner here. This is a story that combines a few
-slightly impossible things, and then extrapolates a plot. It mixes in
-some people who really did exist, like Douglas Adams, with some people
-who didn't, like Samuel. I did that because I want to show you
-something; I'm using characters and narrative to carry a message. I'm
-kind of spoiling the fun a little, but I'm trying to show how Samuel
-learns how we know things, and what that means for his life. Maybe it
-means something for your life too.
-
-Can you think of another book that uses the same narative devices? What
-if some of the things you thought were literal, aren't? Would the
-messages be different?
