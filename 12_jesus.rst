@@ -27,10 +27,10 @@ explains it to his students.
     that lives through you.
 
     This is what it means to live in the kingdom of God. And just like
-    the way Jesus appeared to his disciples after his death, it turned
-    out that he was there all along, and we just hadn't noticed him, but
-    when we did it changed everything. So the kingdom of God has always
-    been here. It took me so long to notice it. But now that I have, it
-    changes everything.
+    the way Jesus appeared to his disciples after his death, when it
+    turned out that he was there all along and we just hadn't noticed
+    him, but when we did it changed everything. So the kingdom of God
+    has always been here. It took me so long to notice it. But now that
+    I have, it changes everything.
 
 
