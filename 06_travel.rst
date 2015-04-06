@@ -215,3 +215,5 @@ Isaac knew Samuel meant Jesus.
 John had left Samuel and Isaac his entire estate. They gave it all to
 the church of Constantinople, and headed south, towards Arabia, and the
 Muslims.
+
+

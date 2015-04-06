@@ -182,3 +182,5 @@ that I was able to ask."
 .. rubric:: Footnotes
 
 .. [#] A Jew forced to convert to Christianity in Spain
+
+

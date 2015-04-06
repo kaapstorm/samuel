@@ -28,3 +28,5 @@ after those philosophers' ideas had been deprecated in the east.
 
 .. [#] known as Avicenna in the West
 .. [#] known as Averroes in the West
+
+

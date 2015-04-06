@@ -45,3 +45,5 @@ flat. She felt a little grateful that he still wanted her. She felt at
 least ten years older, and here he was, looking twenty years younger.
 She felt God was spoiling her, and so, in bed, she spoilt Samuel in
 return, and hoped that Yahweh discretely kept his eyes closed.
+
+

@@ -172,3 +172,5 @@ Isaac spoke to his family, and said his goodbyes too. Isaac had been
 living with one of his grandchildren, and to be honest they didn't seem
 as sad as Samuel's family about his departure. Maybe it was the right
 time after all.
+
+

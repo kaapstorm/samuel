@@ -27,3 +27,5 @@ see that?! Did you see that?!" They hurried back to Jerusalem, and
 Samuel went back to his family and told everyone. From then on they hung
 out with Jesus' followers, worshipped in the Temple with them, and met
 up often.
+
+
