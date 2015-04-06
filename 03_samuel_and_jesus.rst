@@ -13,10 +13,9 @@ really should meet Him. He is amazing. And what's more, you already have
 a miracle in common. If that isn't a sign from God that you must meet, I
 don't know what is."
 
-So that Shabbat, instead of going to the same synagogue he had attended
-since he was a boy, Samuel met up with Matthew, and they both went to a
-room above a shop, where they met more followers of this resurrected
-prophet.
+So that Shabbat, instead of going to the Temple with his family as
+usual, Samuel met up with Matthew, and they both went to a room above a
+shop, where they met more followers of this resurrected prophet.
 
 They all sounded very excited about this prophet. Matthew had
 down-played the significance that his followers ascribed to him. They
