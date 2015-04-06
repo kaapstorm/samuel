@@ -165,10 +165,10 @@ soul, on pain of death. It is an oath I have sworn, as a priest. I am
 asking you to offer me the same assurance. The things I have said to
 you, they are not acceptable thoughts. We both know that."
 
-"I survived the Inquisition. I know how that some thoughts are
-unacceptable. Actually, I feel safer that we can keep each other's
-questions to ourselves. This has turned out to be more than my
-confession. This is a communion of confessions."
+"I survived the Inquisition. I know how some thoughts are unacceptable.
+Actually, I feel safer that we can keep each other's questions to
+ourselves. This has turned out to be more than my confession. This is a
+communion of confessions."
 
 "I like that," said the priest, "a communion of confessions. I don't
 know whether we have answered any questions, but I am deeply grateful

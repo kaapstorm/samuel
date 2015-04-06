@@ -20,7 +20,7 @@ book."
 mind for a while now, and I think it needs a holistic approach to find a
 solution. An approach that might play to your strengths."
 
-"Well," started Douglas, a little boubtfully.
+"Well," started Douglas, a little doubtfully.
 
 "Barman, another two pints, please," interrupted Samuel.
 
