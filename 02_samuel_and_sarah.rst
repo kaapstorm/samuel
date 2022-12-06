@@ -15,11 +15,11 @@ way he used to. He didn't want to run the show any more, or take over
 from Joseph at all. And he made that clear to Joseph, to avoid any
 complications. Joseph seemed to be a bit relieved about that, but also
 understood that Samuel was bringing in a lot of customers, and was happy
-to have his "signature" bagel, and his apple and cinnamon cake glazed
-with vanilla. (Joseph had never been able to get it to taste the same.
-Samuel had taken his secret to the grave. But now that he was back from
-that very same grave, Joseph paid close attention, and noticed what he
-had missed before; Samuel added a lot of honey to the water that he
+to have his "signature" bagel, and his apple and cinnamon cake with
+crushed almond glaze. (Joseph had never been able to get it to taste the
+same. Samuel had taken his secret to the grave. But now that he was back
+from that very same grave, Joseph paid close attention, and noticed what
+he had missed before; Samuel added a lot of honey to the water that he
 boiled the apples in.)
 
 Samuel's bagel was just called "Samuel's Signature Bagel" and they
