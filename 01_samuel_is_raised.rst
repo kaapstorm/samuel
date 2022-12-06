@@ -88,8 +88,8 @@ some better clothes."
 So they started walking.
 
 As they approached the cemetary gate, they heard a dull thump about
-a cubit from the exit. Samuel turned to Isaac. "Did you hear that?" Then
-they both clearly heard a muffled shout. It was coming from another
+ten cubits from the exit. Samuel turned to Isaac. "Did you hear that?"
+Then they both clearly heard a muffled shout. It was coming from another
 tomb, but this one was just cracked, not completely broken as Samuel's
 had been.
 
