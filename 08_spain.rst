@@ -1,13 +1,13 @@
 Spain
 -----
 
-When the south of Spain was conquered by Castile, Christians and Jews
-were welcomed into the kingdom, on condition they followed the
-traditions of the church of Rome. About 1500 years had passed since
-Samuel had met Jesus, and this was the first time he and Isaac had
-encountered the church of Rome. It wasn't fundamentally different from
-Christianity under the caliphate, except for the fact that being
-Christian meant being not Jewish; not Jewish at all.
+When the south of Spain was reconquered by the Christian kingdoms,
+Christians and Jews were welcomed into the kingdom, on condition they
+followed the traditions of the church of Rome. About 1500 years had
+passed since Samuel had met Jesus, and this was the first time he and
+Isaac had encountered the church of Rome. It wasn't fundamentally
+different from Christianity under the caliphate, except for the fact
+that being Christian meant being not Jewish; not Jewish at all.
 
 Samuel and Isaac hadn't experienced anything like this since the
 Roman-Jewish Wars, over a thousand years earlier. Islam had respected
